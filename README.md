@@ -1,0 +1,1 @@
+ini hanya bercanda saja
